@@ -1,0 +1,1 @@
+Please head to http://471.no/MeowMC for up-to-date install instructions. :)
